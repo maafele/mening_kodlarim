@@ -1,1 +1,0 @@
-# mening_kodlarim
